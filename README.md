@@ -1,1 +1,0 @@
-# RC---LO-566-Maybelline-Instant-Eraser-GENERIC
